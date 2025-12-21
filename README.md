@@ -1,2 +1,2 @@
 ### Hi 🙋‍♂️
-### I am Lampros, a MSc student in TU/e
+### I am Lampros, an EE MSc student at TU/e 
